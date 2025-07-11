@@ -1,3 +1,5 @@
+![DokiTakeover](https://cdn2.steamgriddb.com/logo_thumb/38c14661ebeae94d15453ad15f2ca57f.png)
+
 Explanation:>
 
 En: USA
